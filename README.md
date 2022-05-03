@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... making shit work
 - 🌱 I’m currently learning ... how to make shit work
 - 💞️ I’m looking to collaborate on ... nothing. im a lone wolf
-- 📫 How to reach me ... dont @ me.
+- 📫 How to reach me ... thats my secret. you cant. 
 
 <!---
 benepixx/benepixx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
